@@ -1,3 +1,5 @@
+https://medium.com/@annongluka4/what-happens-when-you-type-https-www-google-com-a39eaf889f4c
+https://medium.com/@annongluka4/1-everythings-better-with-a-pretty-diagram-a9412ca851d9
 What happens when...
 ====================
 
